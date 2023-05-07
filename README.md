@@ -1,1 +1,1 @@
-# 1st Semester Subject Project are here you can check it.
+My 1st Semester subject projects are here you can check it.
